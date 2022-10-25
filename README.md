@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Okak302
+- 👀 I’m interested in VSAT
+- 🌱 I’m currently learning Programming
+- 💞️ I’m looking to collaborate on -...-
+- 📫 How to reach me -...-
